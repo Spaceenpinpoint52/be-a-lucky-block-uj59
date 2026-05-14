@@ -1,4 +1,4 @@
-#  
+#  no-ban Scripts for be a lucky block is the best be a lucky block Script, featuring invisibility and silent aim. Safe and powerful for all your needs.
 
 
 
